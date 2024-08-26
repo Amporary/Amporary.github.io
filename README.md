@@ -1,1 +1,0 @@
-# amporary.github.io
